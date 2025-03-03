@@ -1,4 +1,4 @@
-## <b>Gringo XP v109 [Download](https://www.learned.lovestoblog.com)<b/>
+## <b>Gringo XP v109 [Download](https://shortxlinks.in/FFhack)<b/>
 
 ## <b>Gringo XP 109 APK<b/>
 
